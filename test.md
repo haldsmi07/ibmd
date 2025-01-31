@@ -1,0 +1,82 @@
+# Axis Powers
+
+- Nazis take hold in Germany in 1933-1934
+	- Nazification, Enabling Act
+	- Saarland Plebiscite: Vast majority voted to rejoin Germany in 1935
+	- Remilitarization of Rhineland (1936)
+- Gross Deutschland: Unification of the German-speaking peoples
+		- Anschluss: Political unification of Germany and Austria (1938)
+			- Violation of Treaty of Versailles
+		- Annexation of the Sudetenland (1938)
+- Lebensraum Policy
+		- Invasion of Czechoslovakia
+		- Invasion of Poland
+			- Molotov-Ribbentrop Pact between Hitler and Stalin
+			- The two countries split Poland
+			- Happened in one day due to German *Blitzkrieg* military tactics
+			- Starts the war officially
+-  Fascist Italy
+	- Invasion of Albania
+		- Inspired by Lebensraum
+	- Joins the Axis in 1936
+- Other Axis Powers
+- Nazi occupation of Denmark and Norway
+	- Strategic occupation to attack British naval supremacy
+- Balkans' Campaign
+	- Italy attempts to invade Greece
+		- Britain attempts to repel
+		- Germany occupies Yugoslavia, and pushes into Greece
+		- The Axis powers successfully gain control of Greece
+		- Britain wiped out in the Mediterranean in 1941
+- Bombing of Pearl Harbor
+	- Axis Power Japan bombs the US in 1942
+	- US joins the war
+- France completely absorbed into the Nazi government (late 1942)
+- Battle of the Bulge
+	- Last ditch attempt by the Germans to retake territory in Belgium
+	- Complete failure, last time the Nazis gain ground in the war
+# Allied Powers
+
+- France and Britain begin readying troops on the western border the Rhineland, in response to Nazi aggression in other areas
+- Nazis occupy France after Operation Sickle Stroke
+	- Occupied this by June 17, 1940
+	- Occupied Vichy France
+- Operation Dynamo
+	- Operation to rescue British soldiers trapped in the Dunkirk Pocket
+- Battle of Britain (1940-1941)
+	- Original Axis plan to take out British recon off the coast
+	- Regular and persistent bombings of England, and particularly London
+	- Overall unsuccessful
+- Operation Barbarossa (Invasion of USSR)
+	- Germany invades the Soviet Union via a 3-prong invasion
+	- Completely overtakes Poland
+	- Seizes Leningrad and Kiev, and attempts to take Moscow and Stalingrad
+- Operation Torch
+	- American and British distract Axis forces by starting fights in North Africa
+- Allied forces invade Italy
+	- Sicily captured in 1943, Fascist forces pushed into the peninsula
+	- Italy surrenders to the Allied powers
+	- September 1943: Allied forces make it to Naples, known as the Gustav Line where there is a short stalemate
+	- US forces make an amphibious landing on the Gustav Line, fails
+	- Allies take Rome in 1944
+	- Allies liberate more and more of Italy after D-Day
+- Soviets push back the Germans almost entirely by September 1943
+	- Fully repelled in Ukraine and pushing into Poland and Romania
+- Allies start using strategic bombing on Germany
+	- Takes out the Luftwaffe (German air force)
+- Allied Liberation of France
+	- Operation Overlord (1944)
+		- Starts on June 6 (D-Day) by storming the beaches of Normandy
+		- Intentionally avoids ports, beaches chosen due to rough terrain for tanks
+	-  US starts invading Nazi France to put pressure on Axis Powers
+	- August 25, 1944: Paris and France are Liberated
+- Operation Market Garden (1944)
+	- Allies liberate a few Dutch cities but cannot fully liberate the Netherlands
+- Red Army Liberations 
+	- Red Army liberates Romania, Bulgaria, Greece, Poland, and Hungary
+- Invasion of Germany
+	- By early 1945 the Soviets and US/UK forces start pushing into Germany proper
+	- The USSR liberates Germany on May 7, 1945.
+	![[Soviet Liberation.png]]
+	- Germany split into four pieces, between the UK, the US, the USSR, and France
+
